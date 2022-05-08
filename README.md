@@ -25,5 +25,6 @@ Web Bucin V2 khusus buat orang tercinta &amp; tersayang.
  
  
  # Let's Be Friends
- * [Rio](t.me/fckualot) Telegram
- * [Rio](instagram.com/san.rio31) Instagram
+ * [Telegram](t.me/fckualot) Rio At Telegram
+ * [Instagram](instagram.com/san.rio31) Rio At Instagram
+ * [Telegram Group](t.me/riogroupsupport) Telegram Group For Disscus About This Project
